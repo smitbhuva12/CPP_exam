@@ -1,0 +1,6 @@
+![ans 5](https://github.com/smitbhuva12/CPP_exam/assets/149983847/1ff3e32c-1448-4c96-b447-8b8fe7485144)
+![ans 4](https://github.com/smitbhuva12/CPP_exam/assets/149983847/94f736ca-7f3a-4067-a7c3-1c94bc63fd39)
+![ans 3](https://github.com/smitbhuva12/CPP_exam/assets/149983847/bf6d2cef-bee2-4ab9-9b17-2fce4b907056)
+![ans 2](https://github.com/smitbhuva12/CPP_exam/assets/149983847/8847d38b-844c-4299-8287-85db4d6435df)
+![ans 1](https://github.com/smitbhuva12/CPP_exam/assets/149983847/1740617b-440f-439f-8299-d112452bba16)
+![ans 7](https://github.com/smitbhuva12/CPP_exam/assets/149983847/21466c1f-452a-4782-9ecc-12ecb4713e81)
